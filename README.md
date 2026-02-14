@@ -1,2 +1,2 @@
 # mavalentine
-Un petit dedié à ma princesse d'amour
+Une petite lettre dedié à ma princesse d'amour
